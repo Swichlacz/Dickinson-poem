@@ -14,7 +14,7 @@
     Just so far goes away.
 
     Oh, Signor, thine the amber hand,
-    And mine the distant sea, --
+    And mine the distant sea,
     Obedient to the least command
     Thine eyes impose on me.
 ____________________________________
